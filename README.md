@@ -10,6 +10,6 @@ la qi chede
 holo
 ggg
 zhen da ren zm kuai neng
-lu zi
+lu zi shuom ing she me 
 sheng huo zhong zon
 fsfdsf
